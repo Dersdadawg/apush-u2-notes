@@ -1,0 +1,2 @@
+#apush/u2
+Economic theory holding that a nation's wealth and power depend on accumulating gold and silver, achieved by exporting more than it imports; colonies existed to supply raw materials to and buy manufactured goods from the mother country. It was the guiding logic behind Britain's [[Navigation Laws]] and shows up throughout colonial economic policy — see [[Trade in the Colonies]] for how it played out in practice.

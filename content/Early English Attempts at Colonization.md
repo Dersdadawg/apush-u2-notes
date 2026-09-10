@@ -1,0 +1,2 @@
+#apush/u2
+England's first attempt at colonizing the New World was by Sir Humphrey Gilbert in 1583, when he tried to settle Newfoundland. His half-brother [[Sir Walter Raleigh]] tried again in 1585 when he established the colony of [[Roanoke Island]] in present-day [[North Carolina]], off the coast of [[Virginia]] — a region itself named for the "Virgin Queen," Elizabeth I.

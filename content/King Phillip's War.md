@@ -1,0 +1,2 @@
+#apush/u2
+1675–1678 war between New England colonists and an alliance of Native nations led by Wampanoag sachem Metacom (called "King Philip" by the English), sparked by decades of English land encroachment, livestock damage to Native fields, and colonial legal domination over Native life. It was proportionally one of the deadliest wars in American history, devastating Native populations in southern New England and ending large-scale organized Native resistance there; see [[Puritans vs Indians]].

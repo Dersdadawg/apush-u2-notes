@@ -1,0 +1,2 @@
+#apush/u2
+[[William Penn]]'s original 1682 constitution for [[Pennsylvania]], guaranteeing a representative assembly elected by landowners. It was replaced in 1701 by the [[Charter of Privileges]], which shifted more power to the assembly.

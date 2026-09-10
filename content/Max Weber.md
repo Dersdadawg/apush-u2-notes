@@ -1,0 +1,2 @@
+#apush/u2
+German sociologist (1864–1920) best known for his later argument, in *The Protestant Ethic and the Spirit of Capitalism*, that Calvinist religious anxiety under [[Predestination]] helped give rise to the disciplined, wealth-accumulating mindset historians call the [[Protestant Work Ethic]] — a useful lens for understanding [[Puritans|Puritan]] culture, even though Weber wrote centuries after the colonial period.

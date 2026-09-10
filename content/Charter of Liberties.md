@@ -1,0 +1,2 @@
+#apush/u2
+1683 document establishing a representative assembly and civil liberties for [[New York]], granted by the colony's proprietor James, Duke of York (later [[King James II]]). It was voided in 1685 when James became king and moved to tighten royal control, foreshadowing the more sweeping [[Dominion of New England]]. Not to be confused with Pennsylvania's similarly-named [[Charter of Privileges]] (1701).

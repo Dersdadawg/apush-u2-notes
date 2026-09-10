@@ -1,0 +1,2 @@
+#apush/u2
+18th-century European intellectual movement emphasizing reason, natural law, and empirical science over tradition and religious authority, associated with thinkers like [[John Locke]]. Its ideas circulated in the colonies through print culture (see [[Benjamin Franklin]], [[Poor Richard's Almanack]]) and, alongside the more emotional [[Great Awakening]], shaped a colonial public increasingly willing to question inherited authority — a current that matters far more to Unit 3's revolutionary politics than to Unit 2 itself, but that took root during this period.

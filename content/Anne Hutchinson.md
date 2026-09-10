@@ -1,0 +1,4 @@
+#apush/u2
+Puritan dissenter who accused Massachusetts Bay ministers of preaching a "covenant of works" (that visible good behavior earns salvation) instead of a pure "covenant of grace." Her claim to receive direct revelation from God, combined with her affirmation of [[Antinomianism]] — the doctrine that the truly saved need not obey the laws of men or God — was treated as dangerous heresy.
+
+She was brought to trial in 1637–38 and, despite defending herself skillfully, was banished. She settled first in [[Rhode Island]], then moved to New Netherland, where she was killed in a Native attack in 1643.

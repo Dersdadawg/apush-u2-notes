@@ -1,0 +1,2 @@
+#apush/u2
+1680 uprising in which Pueblo peoples in present-day New Mexico, led by Po'pay, drove Spanish colonizers out of the region for over a decade in response to forced labor and suppression of Native religion. It was the most successful Native revolt against European colonization in North America and forced Spain to govern [[New Spain]]'s northern frontier with greater accommodation after reconquest.

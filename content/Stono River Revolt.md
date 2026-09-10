@@ -1,0 +1,2 @@
+#apush/u2
+1739 uprising near the Stono River in South Carolina in which a group of enslaved Africans armed themselves, killed several colonists, and attempted to flee toward freedom in [[Spanish Florida]], which had offered freedom to escapees from English colonies. Colonial militia crushed the revolt, and the resulting Negro Act of 1740 imposed even harsher restrictions on enslaved people's movement, assembly, and literacy (see [[Slavery]]).

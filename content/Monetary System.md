@@ -1,0 +1,2 @@
+#apush/u2
+Colonial money troubles stemmed from [[Mercantilism|mercantilist]] policy (see [[Navigation Laws]]) that steadily drained hard currency back to Britain. Colonists filled the gap with commodity money (like [[Tobacco]]), foreign coins (especially Spanish silver dollars), and colony-issued paper currency, creating recurring disputes with British merchants and officials over inflation and debt.

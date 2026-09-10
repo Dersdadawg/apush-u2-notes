@@ -1,0 +1,2 @@
+#apush/u2
+1644–1646 conflict, the last major Powhatan uprising against Virginia, led by the elderly Opechancanough in a surprise attack that killed several hundred colonists. English forces defeated and captured Opechancanough, and the 1646 peace treaty made his successor a tributary of the English crown and confined the Powhatan to a defined territorial boundary, effectively ending Powhatan power in the region (see [[Jamestown]], [[Second Anglo-Powhatan War]]).

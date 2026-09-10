@@ -1,0 +1,2 @@
+#apush/u2
+Term for several overlapping Atlantic trade circuits linking the colonies, Europe, and Africa. The most famous New England version: rum shipped to West Africa and traded for enslaved people; enslaved people carried via the [[Middle Passage]] to the West Indies and traded for sugar and molasses; sugar and molasses shipped to New England and distilled into more rum. A related British circuit carried manufactured goods to Africa for slaves, enslaved people to the Americas, and raw materials like [[Tobacco]] back to Britain.

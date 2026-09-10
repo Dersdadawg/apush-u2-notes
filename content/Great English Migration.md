@@ -1,0 +1,2 @@
+#apush/u2
+The Great Migration (roughly 1630–1640) saw an estimated 20,000 Puritans emigrate from England to [[New England]], part of a larger wave of roughly 80,000 English emigrants who left for New England, the Chesapeake, and the West Indies combined during this decade. It was spurred by [[King Charles I]]'s dismissal of Parliament in 1629 and his anti-Puritan religious policies, and it slowed once the [[English Civil War]] gave Puritans a reason to stay and fight for reform at home instead.

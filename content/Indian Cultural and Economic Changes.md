@@ -1,0 +1,2 @@
+#apush/u2
+General pattern across 17th–18th century North America in which contact with Europeans reshaped Native life: epidemic disease killed the majority of many Native populations, European trade goods (guns, metal tools, alcohol) altered economies and warfare, the fur trade drew Native nations into European commercial rivalries, and horses transformed Plains cultures. These changes underlie conflicts described in notes like [[Beaver Wars]] and [[King Phillip's War]].

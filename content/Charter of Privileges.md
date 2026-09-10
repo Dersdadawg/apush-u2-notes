@@ -1,0 +1,2 @@
+#apush/u2
+1701 document that replaced [[William Penn]]'s original [[Frame of Government]] as [[Pennsylvania]]'s constitution, guaranteeing freedom of worship for all who believed in God and unrestricted immigration. It shifted more power to the elected assembly and remained Pennsylvania's governing charter until the Revolution. Not to be confused with New York's similarly-named [[Charter of Liberties]] (1683).
